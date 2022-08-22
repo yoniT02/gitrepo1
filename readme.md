@@ -1,2 +1,1 @@
-readme file 
-the rela poep in the real
+we are the second hands
